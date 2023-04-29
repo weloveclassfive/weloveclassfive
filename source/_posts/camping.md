@@ -1,0 +1,190 @@
+---
+title: 5班广州大学城露营策划与活动实录
+excerpt: 升哥全球粉丝后援会面基
+banner_img: /img/camping/gadgets/logo/dontrush-1920-1280.png
+banner_mask_alpha: 0.7
+date: 2023-04-22 22:22:22
+---
+
+## 写在前面
+2023年4月22日在广州大学城举行了露营活动。早在二十天前刚拉策划群开始讨论时，我们还未曾设想那一天会是怎样的热闹情景。现在回味起来，这次活动在各个方面都有很多机缘巧合和神来之笔，策划的整个过程也充满了惊喜和乐趣。
+
+> 当你想做一件事的时候，全宇宙都会来帮助你的。——梁老师
+
+## 策划花絮
+
+### 时间选择和生日派对
+在四月初最开始策划时，初定是在4月15日和4月22日二选一。当时阿蔡作为大二在读学生整个月只有22号那天不用上周末的实验课，而江龙由于计划四月下旬从杭州曲线救国飞来广州找齐兄弟们，所以他极力上谏推动将时间定为了22号。后来安排活动时想加入生日派对的环节，这时我们惊奇地发现整个月只放一天假的同学同时也是那一天的寿星，于是顺理成章地定制了横幅并预订了蛋糕，作为那一天给寿星的惊喜。
+
+![](/img/camping/gadgets/747ddb7540aeb6d2a8bb484fecdbba3.jpg)
+![](/img/camping/gadgets/IMG_20230422_225432.jpg)
+
+### 纪念帽子和经典语录
+升哥为本次活动设计了开场游戏，帽子是开场游戏时的专用道具。原先需要用到四张扑克牌，这个形式被我们改成了四句不同的五班经典语录：“你先别急”、“好痛苦啊”、“不要取笑”和“我生气了”。这四句语录亲切自然且含义丰富，对仗工整且朗朗上“头”，刚好是两个感叹句和两个祈使句，可以互相回应。我们希望大家在游戏时反复念叨这四句魔咒，享受互相折腾的快乐。不过最后发现大家都智力超群轻松通关了，至今主办方都没弄清楚怎么回事。
+
+![](/img/camping/gadgets/cdee4ae41241e474721296463fa4055.jpg)
+
+为了确定如何设计将语录印在帽子上，我们从晚上十二点对线到凌晨三点还没达成共识，最大的争议在于除了经典语录外帽子还要不要额外印上“五班经典语录”等有辨识度的东西，不加上觉得少了点仪式感，加上又觉得信息冗余。结果第二天中午联系展恒询问意见，展恒：“把五班经典语录这句话改成英文的不就行了，我可以出手”。于是就有了这一兼具信息表达实用性和美学价值重要性的logo设计。
+
+![](/img/camping/gadgets/logo/Five-1920-1280.png)
+![](/img/camping/gadgets/IMG_20230423_010242.jpg)
+
+### 升哥全球粉丝应援会
+升哥大学四年难得借助实习有机会待在广州，且这次露营也是他从实习公司离职富贵前的最后一个较大型的活动，因此我们背着他精选帅气靓照准备了贴合本人气质的手幅和海报，并在露营当天展示了出来。手幅由敏琪姐精心设计，海报由朗哥激情打造。海报原先打算做成易拉宝的形式，不过考虑到这样的话最终海报就会比本人高，并且也没有这么大分辨率的现成照片，于是退而求其次改成桌面迷你易拉宝，摆在露营的桌子上给各位赌神加buff。手幅的设计风格对标实际的明星应援手幅，海报的设计风格对标《纯洁心灵·逐梦演艺圈》海报。值得注意的是ChatGPT也参与到了标语的头脑风暴中，“泽星...升月...”这一标语就是完全由大语言模型生成的。
+
+![](/img/camping/gadgets/mmexport1681613122320.png)
+![](/img/camping/gadgets/mmexport1681613119005.png)
+![](/img/camping/gadgets/mmexport1681654757224.jpg)
+
+### 广美同学和愿望收集
+露营前一周，我们在大学城踩点时遇到了广州美术学院的小姐姐们，她们当时在摆摊收集路过观众们“印象最深刻的愿望”，以作为毕设创作的素材。还得是升哥依托个人魅力收买了人家并加了微信，邀请她们露营当天携带足量的纸张和笔出现在我们现场，于是便有了这张珍贵的莞中5班愿望墙照片。这张照片里有两个愿望是我们帮当时不在现场的同学代写的。另外展恒的愿望没有在里面，这是因为他在前一周一起踩点时已经写了一个格局打开的愿望。这个愿望贯绝古今，着眼世界，以至于被她们老师当做反面案例，特地叮嘱广美同学们不要让大家写这种假大空的文字。
+
+> 江龙锐评：怎么大家的字都写得这么好看。
+
+![](/img/camping/gadgets/ffd511fd9bcdfebf0e5481fcfab9302.jpg)
+![](/img/camping/gadgets/IMG_20230422_225753.jpg)
+![](/img/camping/individuals/微信图片_20230428211621.jpg)
+
+### 露营场地和天公作美
+原先我们确定露营场地时有五个选址，最终选择了现在这个在当天晚上还有旁边露天酒吧放现场BGM的地方。原定是傍晚七点收摊，后来发现大部分同学都打算待到晚上，于是泳宏哥作为露营队长和监烤组长，从市场采购到食材加工都一马当先，为大家带来了极视味之娱的烧烤体验。
+
+> 晚上寻味走过来的陌生人：你们这个串怎么卖？
+
+最难得的是当天顺应天时地利，21号和22号都是夹杂在雷阵雨中的多云，表明露营前的做法取得了初步效果。
+
+![](/img/camping/gadgets/weather-report.png)
+
+### 其他花絮
+- 点名表扬克里斯，从深圳早上七点出发，九点五十六分到现场，是第一个抵达的同学。按时上班的作风值得我们学习。
+- 点名致敬chd，下午从白云区花了两个小时专门过来，在现场待了两个小时，又花了两个小时专门回去。期间跟我们一起拍了合照，放起了风筝，还帮忙生起了火。领导赶会的节奏值得我们膜拜。
+- ~~微积分A期末考试~~问卷调查的链接为：https://www.wjx.cn/vm/h4epD5e.aspx#
+- 露营策划群的群名为：基于多源人群的人类实体活动调研。
+- 早些时候我们联系了乔磊老师，想找他领取高中时约定十年后开启的鞋盒，在露营那天带过去。不过他四月份在六中交流不便回去取阅，只好作罢。
+- 露营开始前，阿蔡作为最早知晓升哥手幅消息的成员之一，并不知道升哥和我们秘密筹划给他和其他同学的生日派对活动；而升哥作为本次活动的策划者，也并不知道我们为这次应援会的所做准备:)
+- 露营前一周我们还将初步策划告知了所邀请的内测用户。我们在天河某招待所里集中学习了策划安排，仔细研读了策划摘要，充分听取了许多宝贵意见。
+
+![](/img/camping/gadgets/820eeec622735649652f169538427ac.jpg)
+
+## 活动寄语
+
+> 组织这次活动我最初的想法有两个：第一个是让很久没见的同学见一见，看一看大家有没有大变样了；第二是让大家能拥有更多的维度去看待现在所处的环境，从每个人的未来规划当中去确定自己以后的目标，并从别人的观点得到启发。再次感谢前来参加的同学，也对不能来的同学表示遗憾。后续会把这次活动的照片和视频整理起来，希望能给大家留下一个美好的回忆，发现其实生活中还是有很多有意思的事情。最后祝愿各位同学都能实现自己的愿望。——Noizersam
+
+> 希望大家以后见面的频率不要太低，能一年见一次就已经很开心了。希望下一次见面不会特别遥远。——骑士
+
+> 在积极的人和事物上永远值得播撒美好的回忆。十年之约固然是一种情怀，但是未来毕竟不可预期，我们能争取的就是把握现在，在这样一个相对而言大家方便的时间节点里开展这样一次聚会。希望这次活动能作为用来打破各个圈子“次元壁”的契机，让以前有跟一些同学联系但跟另外的同学“失联”的朋友们能获得机会碰在一起，并互相借鉴到向上的生活动力。——xlinsist
+
+## 场景照精选
+### 集体照
+![](/img/camping/groups/IMG_20230422_161523.jpg)
+![](/img/camping/groups/mmexport1682694061133.jpg)
+![](/img/camping/groups/mmexport1682244393138.jpg)
+![](/img/camping/groups/IMG_2167.JPG)
+<!-- ![](/img/camping/groups/mmexport1682244416711.jpg) -->
+
+
+### 麻将场
+![](/img/camping/mahjong/IMG_2117.JPG)
+![](/img/camping/mahjong/IMG_20230422_123024.jpg)
+![](/img/camping/mahjong/IMG_20230422_130224.jpg)
+![](/img/camping/mahjong/IMG_20230422_131051.jpg)
+
+### 运动场
+![](/img/camping/sports/mmexport1682694000902.jpg)
+![](/img/camping/sports/IMG_20230424_225550.jpg)
+![](/img/camping/sports/IMG_20230422_150012.jpg)
+![](/img/camping/sports/mmexport1682221667068.jpg)
+
+### UNO场
+![](/img/camping/cards/IMG_2105.JPG)
+![](/img/camping/cards/IMG_20230422_135209.jpg)
+![](/img/camping/cards/IMG_20230422_143012.jpg)
+
+### 游戏场
+![](/img/camping/games/mmexport1682221718261.jpg)
+![](/img/camping/games/IMG_2128.JPG)
+![](/img/camping/games/IMG_2133.JPG)
+
+### 烧烤场
+<!-- ![](/img/camping/barbecue/mmexport1682174677748.jpg)
+![](/img/camping/barbecue/IMG_20230422_190835.jpg)
+![](/img/camping/barbecue/IMG_20230422_190001.jpg) -->
+![](/img/camping/barbecue/mmexport1682694205348.jpg)
+![](/img/camping/barbecue/mmexport1682694183504.jpg)
+![](/img/camping/barbecue/IMG_20230422_193928.jpg)
+![](/img/camping/barbecue/IMG_20230422_212237.jpg)
+
+
+## 个人照精选
+### 合照系列
+![](/img/camping/partners/IMG_2085.jpg)
+
+![](/img/camping/partners/IMG_20230423_081446.jpg)
+![](/img/camping/partners/IMG_20230423_004504.jpg)
+
+![](/img/camping/partners/mmexport1682694126257.jpg)
+![](/img/camping/partners/IMG_20230422_184216.jpg)
+
+![](/img/camping/partners/IMG_20230422_171054.jpg)
+
+![](/img/camping/partners/IMG_2128.jpg)
+![](/img/camping/partners/IMG_2161.jpg)
+
+
+![](/img/camping/partners/IMG_20230422_144940.jpg)
+
+<!-- ![](/img/camping/partners/mmexport1682693956110.jpg) -->
+
+<!-- ![](/img/camping/partners/mmexport1682694196385.jpg) -->
+![](/img/camping/partners/IMG_20230422_191320.jpg)
+![](/img/camping/partners/IMG_20230422_101923.jpg)
+<!-- ![](/img/camping/partners/IMG_20230422_181725.jpg) -->
+
+### 特写系列
+![](/img/camping/individuals/IMG_20230423_003618.jpg)
+
+![](/img/camping/individuals/IMG_20230422_190602.jpg)
+<!-- ![](/img/camping/individuals/IMG_20230422_181854_1.jpg) -->
+
+<!-- ![](/img/camping/individuals/IMG_20230422_155300.jpg) -->
+![](/img/camping/individuals/IMG_20230422_144149.jpg)
+<!-- ![](/img/camping/individuals/IMG_20230422_183327.jpg) -->
+
+![](/img/camping/individuals/IMG_20230422_160929.jpg)
+
+![](/img/camping/individuals/IMG_20230422_183402.jpg)
+<!-- ![](/img/camping/individuals/IMG_20230422_145335.jpg) -->
+
+![](/img/camping/individuals/IMG_20230422_144244.jpg)
+
+![](/img/camping/individuals/IMG_20230422_144141.jpg)
+
+![](/img/camping/individuals/IMG_2173.JPG)
+<!-- ![](/img/camping/individuals/IMG_20230423_003739.jpg) -->
+
+![](/img/camping/individuals/IMG_20230422_141152_edit_228490381770863.jpg)
+
+![](/img/camping/individuals/IMG_2088.JPG)
+
+<!-- ![](/img/camping/individuals/IMG_2102.jpg) -->
+![](/img/camping/individuals/IMG_20230423_003823.jpg)
+
+<!-- ![](/img/camping/individuals/IMG_20230422_183223.jpg) -->
+![](/img/camping/individuals/IMG_20230423_003653.jpg)
+
+![](/img/camping/individuals/IMG_2175.jpg)
+
+![](/img/camping/individuals/IMG_20230422_205801.jpg)
+
+
+## 致谢
+- 感谢展恒对纪念帽子的logo设计！主页和文章的顶部大图都是他的杰作。
+- 感谢志航帮忙查收淘宝寄过来的难喝饮料！
+- 感谢浩洋带来相机！
+- 感谢畋均带来脾气很大很难充气的气排球！
+- 感谢沛林带来三国杀！
+- 感谢花花带来手搓麻将！你的比卡丘carry了一整天。
+- 感谢朗哥设计的海报和敏琪姐设计的手幅！
+- 感谢贡献摄影的同学：基哥、升哥、款玲、孔姐、江龙、加了滤镜的阿蔡和直接发压缩包的浩洋！
+- 最后，感谢从百忙和百闲中抽空前来的大家！
+
+欢迎重温高 仿 开 门 大 吉：https://www.bilibili.com/video/BV1no4y197Ps/
